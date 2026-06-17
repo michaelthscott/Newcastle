@@ -2,6 +2,8 @@
 layout: home
 ---
 
+![Michael](Newcastle.jpg)
+
 SATURDAY
 
 small window
