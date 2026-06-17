@@ -1,5 +1,3 @@
-Newcastle
-
 SATURDAY
 
 small window
