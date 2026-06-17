@@ -361,12 +361,8 @@ then off\
 to sleep - tomorrow Sunday\
 alone quiet with myself\
 sympathetic\
-whole day like written
-
-tomorrow another day
-
-dark
-
-window
-
+whole day like written\
+tomorrow another day\
+dark\
+window\
 sky
