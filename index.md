@@ -199,8 +199,8 @@ laundrette\
 don\'t just sit there become a nurse! (smiling people in a poster)\
 buy a model aeroplane kit? (no)\
 into the house\
-determined to write for hours about the day - straight as it\
-comes 4 o\'clock Mike and Lee still in bed\
+determined to write for hours about the day - straight as it comes\ 
+4 o\'clock Mike and Lee still in bed\
 Spanish Rose\
 I decided to either fall either madly in love or become a heroin addict\
 which did you decide on?\
