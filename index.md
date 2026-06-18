@@ -347,7 +347,7 @@ told of police car - letter - say I will go to police station tomorrow
 morning (commitment)\
 dope - sale - they leave with dope down trousers\
 Syd and I upstairs - dope smoke\
-Mike and Lee (Syd asks who is Lee?) gone to movies wont be back for
+Mike and Lee (Syd asks who is Lee?) gone to movies won't be back for
 couple of hours\
 Syd talks of the \"weight\" - the roaches - hiding it - etc.\
 worried about letter - don\'t forget\
