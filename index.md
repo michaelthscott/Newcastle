@@ -12,7 +12,7 @@ snoring\
 Kate asleep me awake\
 looking at the ceiling\
 half off the mattress\
-struggling ineffectually for a good portion\
+struggling ineffectually for a good position\
 \"more comfortable if you get out\" she said\
 no\
 unzipping the sleeping bag using it as a blanket\
