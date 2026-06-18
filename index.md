@@ -216,7 +216,7 @@ Silver - old man\
 try and dodge out of sight (no hope)\
 have to ask him in (he says he will leave in half an hour)\
 give him some wine where are the others?\
-Sid & Carol in London- hitching (he says he is too old)\
+Sid & Carol in London - hitching (he says he is too old)\
 Mike upstairs with young lady \...\
 he sits on hard seat\
 foul wine\
@@ -306,7 +306,7 @@ film - Dr Strangelove - Kate seen it already\
 leave slowly\
 Kate Mike & Lee Les & Sara me behind singing midnight special\
 night air darkness\
-cigarettes (Kate left hers in union)\
+cigarettes (Kate left hers in Union)\
 do you want to go back and get them?\
 no\
 Kate bus stop - she goes home\
