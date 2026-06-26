@@ -2,7 +2,7 @@
 layout: home
 ---
 
-![Michael](Michael.jpg)
+![Michael](images/Michael.jpg)
 
 SATURDAY\
 small window\
